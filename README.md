@@ -1,0 +1,1 @@
+# diccionariobasico.github.io
